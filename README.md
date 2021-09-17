@@ -1,1 +1,0 @@
-# Literacy-rate-youth-ages-15-24-gender-parity-index-GPI---Kazakhstan
